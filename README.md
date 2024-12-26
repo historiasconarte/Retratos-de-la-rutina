@@ -1,1 +1,2 @@
 # Retratos-de-la-rutina
+Margaret Barker transformó lo cotidiano en arte. En "Un día cualquiera", muestra a cuatro mujeres atrapadas en la rutina de las tareas domésticas. Cada elemento del cuadro, desde las sábanas hasta la ventana al fondo, habla de un peso emocional que trasciende el tiempo. Barker convirtió lo común en extraordinario, recordándonos el valor y simbolismo de las labores invisibles que sostienen la vida diaria.
